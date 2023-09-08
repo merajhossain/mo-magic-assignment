@@ -1,0 +1,1 @@
+# mo-magic-assignment
